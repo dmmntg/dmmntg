@@ -1,4 +1,4 @@
-- 👋 Hi, I’m @dmmntg
+- 👋 Hi, I’m Dominick
 - 👀 I’m interested in learn more abt codding
 - 🌱 I’m currently learning a python pro course
 - 💞️ I’m looking to collaborate with nobody, hah
