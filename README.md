@@ -4,7 +4,7 @@
 - 💞️ I’m looking to collaborate with nobody, hah ;)
 - 📫 How to reach me: domnt1.1166@gmail.com
 - 😄 Pronouns: Dom, Domi or Ian
-- ⚡ Fun fact: Im Champ in Rocket League c:
+- ⚡ Fun fact: Im a mega-lover of cats 😼
 
 <!---
 dmmntg/dmmntg is a ✨ special ✨ repository because its `README.md` (this file) appears on your GitHub profile.
